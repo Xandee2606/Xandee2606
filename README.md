@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Xandee2606
-- 👀 I’m interested in programation
 - 🌱 I’m currently learning software engineering
 - 📫 How to reach me email : xandee2606@gmail.com or my numeber: 61994237785
 - 😄 Pronouns: he/ his
